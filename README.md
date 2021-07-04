@@ -1,6 +1,6 @@
 # GoogleCertifications
 
-Analytics Enthusiasm
+Analytics Enthusiasm powered by Google :grinning:
 
 ​Hello, I am Paul Richie Gomes and graduated from BRAC University from Computer Science and Engineering. I consider myself as an technology and business enthusiast with great passion for problem solving both in terms in business and IT field. This page contains my Google Certifications. 
 
