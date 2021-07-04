@@ -1,5 +1,4 @@
 # GoogleCertifications
-Google Certifications
 
 Analytics Enthusiasm
 
