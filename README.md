@@ -7,7 +7,7 @@ Analytics Enthusiasm
 
 1. [Google Data Analytics Professional Certificate](https://drive.google.com/file/d/1HY4CupE4rvHCscnCofdOMTOg8RRi9jcM/view?usp=sharing)
 
-2. [Recruiting, Hiring, and Onboarding Employees](https://drive.google.com/file/d/1fm87A6jiYMLmgdZ6TcvnLZXT53juMLnQ/view?usp=sharing)
+2. [The Fundamentals of Digital Marketing](https://drive.google.com/file/d/1fm87A6jiYMLmgdZ6TcvnLZXT53juMLnQ/view?usp=sharing)
 
 
 
